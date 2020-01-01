@@ -1,0 +1,188 @@
+ - If something is important enough, even if the odds are against you, you should still do it.
+ - I could either watch it happen or be a part of it.
+ - Failure is an option here. If things are not failing, you are not innovating enough.
+ - I think it is possible for ordinary people to choose to be extraordinary.
+ - No, I don’t ever give up. I’d have to be dead or completely incapacitated.
+ - Don’t be afraid of new arenas.
+ - I think that’s the single best piece of advice: constantly think about how you could be doing things better and questioning yourself.
+ - Persistence is very important. You should not give up unless you are forced to give up.
+ - People work better when they know what the goal is and why. It is important that people look forward to coming to work in the morning and enjoy working.
+ - Pay attention to negative feedback and solicit it, particularly from friends. Hardly anyone does that, and it’s incredibly helpful.
+ - You have to be pretty driven to make it happen. Otherwise, you will just make yourself miserable.
+ - Life is too short for long-term grudges.
+ - Life on Earth must be about more than just solving problems. It’s got to be something inspiring, even if it is vicarious.
+ - There’s a tremendous bias against taking risks. Everyone is trying to optimize their ass-covering.
+ - Any product that needs a manual to work is broken.
+ - The first step is to establish that something is possible; then probability will occur.
+ - Great companies are built on great products.
+ - It’s OK to have your eggs in one basket as long as you control what happens to that basket.
+ - You want to be extra rigorous about making the best possible thing you can. Find everything that’s wrong with it and fix it. Seek negative feedback, particularly from friends.
+ - If you need inspiring words, don’t do it.
+ - I think it would be great to be born on Earth and to die on Mars. Just hopefully not at the point of impact.
+ - Being an entrepreneur is like eating glass and staring into the abyss of death.
+ - I think it’s very important to have a feedback loop, where you’re constantly thinking about what you’ve done and how you could be doing it better.
+ - I tend to approach things from a physics framework. And physics teaches you to reason from first principles rather than by analogy.
+ - When Henry Ford made cheap, reliable cars people said, ‘Nah, what’s wrong with a horse?’ That was a huge bet he made, and it worked.
+ - You want to have a future where you’re expecting things to be better, not one where you’re expecting things to be worse.
+ - I don’t create companies for the sake of creating companies, but to get things done.
+ - For my part, I will never give up, and I mean never.
+ - My motivation for all my companies has been to be involved in something that I thought would have a significant impact on the world.
+ - The odds of me coming into the rocket business, not knowing anything about rockets, not having ever built anything, I mean, I would have to be insane if I thought the odds were in my favor.
+ - When I started SpaceX I thought that the most likely outcome was failure. And I think to have any other expectation would have been irrational.
+ - Starting and growing a business is as much about the innovation, drive and determination of the people who do it as it is about the product they sell.
+ - When you struggle with a problem, that’s when you understand it.
+ - We’re running the most dangerous experiment in history right now, which is to see how much carbon dioxide the atmosphere can handle before there is an environmental catastrophe.
+ - If you go back a few hundred years, what we take for granted today would seem like magic – being able to talk to people over long distances, to transmit images, flying, accessing vast amounts of data like an oracle. These are all things that would have been considered magic a few hundred years ago.
+ - The idea of lying on a beach as my main thing just sounds like the worst. It sounds horrible to me. I would go bonkers. I would have to be on serious drugs. I’d be super-duper bored. I like high intensity.
+ - If you’re trying to create a company, it’s like baking a cake. You have to have all the ingredients in the right proportion.
+ - I came to the conclusion that we should aspire to increase the scope and scale of human consciousness in order to better understand what questions to ask. Really, the only thing that makes sense is to strive for greater collective enlightenment.
+ - It is remarkable how many things you can explode. I’m lucky I have all my fingers.
+ - If humanity doesn’t land on Mars in my lifetime, I would be very disappointed.
+ - Brand is just a perception, and perception will match reality over time. Sometimes it will be ahead, other times it will be behind. But brand is simply a collective impression some have about a product.
+ - I do think there is a lot of potential if you have a compelling product and people are willing to pay a premium for that. I think that is what Apple has shown. You can buy a much cheaper cell phone or laptop, but Apple’s product is so much better than the alternative, and people are willing to pay that premium.
+ - Most people can learn a lot more than they think they can. They sell themselves short without trying.
+ - There are some important differences between me and Tony Stark, like I have five kids, so I spend more time going to Disneyland than parties.
+ - Many things are improbable, only a few are impossible.
+ - I don’t think it’s a good idea to plan to sell a company.
+ - Land on Mars, a round-trip ticket – half a million dollars. It can be done.
+ - If you get up in the morning and think the future is going to be better, it is a bright day. Otherwise, it’s not.
+ - I think most of the important stuff on the Internet has been built. There will be continued innovation, for sure, but the great problems of the Internet have essentially been solved.
+ - There have only been about a half dozen genuinely important events in the four-billion-year saga of life on Earth: single-celled life, multicelled life, differentiation into plants and animals, movement of animals from water to land, and the advent of mammals and consciousness.
+ - My mentality is that of a samurai. I would rather commit seppuku than fail.
+ - Some people don’t like change, but you need to embrace change if the alternative is disaster.
+ - I’ve actually made a prediction that within 30 years a majority of new cars made in the United States will be electric. And I don’t mean hybrid, I mean fully electric.
+ - I would like to die on Mars. Just not on impact.
+ - As you heat the planet up, it's just like boiling a pot.
+ - Don’t just follow the trend. You may have heard me say that it’s good to think in terms of the physics approach of first principles. Which is, rather than reasoning by analogy, you boil things down to the most fundamental truths you can imagine and you reason up from there.
+ - That’s my lesson for taking a vacation: vacation will kill you.
+ - What I’m trying to do is to maximise the probability of the future being better.
+ - I think there are too many smart people pursuing internet stuff, finance, and law. That is part of the reason why we haven’t seen as much innovation.
+ - When I was in college, I wanted to be involved in things that would change the world.
+ - Going from PayPal, I thought: ‘Well, what are some of the other problems that are likely to most affect the future of humanity?’ Not from the perspective, ‘What’s the best way to make money?’
+ - I’ve actually not read any books on time management.
+ - I don’t spend my time pontificating about high-concept things; I spend my time solving engineering and manufacturing problems.
+ - Physics is really figuring out how to discover new things that are counterintuitive, like quantum mechanics. It’s really counterintuitive.
+ - We need to figure out how to have the things we love, and not destroy the world.
+ - Weighing too much on someone’s talent and not someone’s personality. I think it matters whether someone has a good heart.
+ - I think the high-tech industry is used to developing new things very quickly. It’s the Silicon Valley way of doing business: You either move very quickly and you work hard to improve your product technology, or you get destroyed by some other company.
+ - I wouldn’t say I have a lack of fear. In fact, I’d like my fear emotion to be less because it’s very distracting and fries my nervous system.
+ - Talent is extremely important. It’s like a sports team, the team that has the best individual player will often win, but then there’s a multiplier from how those players work together and the strategy they employ.
+ - The space shuttle was often used as an example of why you shouldn’t even attempt to make something reusable. But one failed experiment does not invalidate the greater goal. If that was the case, we’d never have had the light bulb.
+ - When we got Tesla going at the very beginning, if you asked me what I thought the odds of success were, I would have said less than 50%. I would have said that failure is the most likely outcome.
+ - I want to make rockets 100 times, if not 1,000 times better. The ultimate objective is to make humanity a multiplanet species. Thirty years from now, there’ll be a base on the moon and on Mars, and people will be going back and forth on SpaceX rockets.
+ - Funded by the government just means funded by the people. Government, by the way, has no money. It only takes money from the people. Sometimes people forget that that’s really what occurs.
+ - I’m a Silicon Valley guy. I just think people from Silicon Valley can do anything.
+ - To make an embarrassing admission, I like video games. That’s what got me into software engineering when I was a kid. I wanted to make money so I could buy a better computer to play better video games. Nothing like saving the world.
+ - If you think back to the beginning of cell phones, laptops or really any new technology, it’s always expensive.
+ - Engineering is the closest thing to magic that exists in the world.
+ - If anyone has a vested interest in space solar power, it would have to be me.
+ - It’s a fixer-upper of a planet but we could make it work.
+ - The lessons of history would suggest that civilisations move in cycles. You can track that back quite far – the Babylonians, the Sumerians, followed by the Egyptians, the Romans, China. We’re obviously in a very upward cycle right now, and hopefully that remains the case. But it may not.
+ - Every mode of transport that we use – whether it’s planes, trains, automobiles, bikes, horses – is reusable, but not rockets. So we must solve this problem in order to become a space-faring civilization.
+ - The revolutionary breakthrough will come with rockets that are fully and rapidly reusable. We will never conquer Mars unless we do that. It’ll be too expensive. The American colonies would never have been pioneered if the ships that crossed the ocean hadn’t been reusable.
+ - I was born in Africa. I came to California because it’s really where new technologies can be brought to fruition, and I don’t see a viable competitor.
+ - It’s just mind-blowingly awesome. I apologize, and I wish I was more articulate, but it’s hard to be articulate when your mind’s blown-but in a very good way.
+ - It’s really incumbent upon us as life’s agents to extend life to another planet. I think that being a multi-planet species will significantly increase the richness and scope of the human experience.
+ - Even if producing CO2 was good for the environment, given that we’re going to run out of hydrocarbons, we need to find some sustainable means of operating.
+ - There’s a real opportunity to have a vertical takeoff and landing electric supersonic jet.
+ - A battery by definition is a collection of cells. So the cell is a little can of chemicals. And the challenge is taking a very high-energy cell, and a large number of them, and combining them safely into a large battery.
+ - The reason we should do a carbon tax is because it’s the right thing to do. It’s economics 101, elementary stuff.
+ - If you had to buy a new plane every time you flew somewhere, it would be incredibly expensive.
+ - America is the spirit of human exploration distilled.
+ - I think Tesla will most likely develop its own autopilot system for the car, as I think it should be camera-based, not Lidar-based. However, it is also possible that we do something jointly with Google.
+ - Facebook is quite entrenched and has a network effect. It’s hard to break into a network once it’s formed.
+ - My background educationally is physics and economics, and I grew up in sort of an engineering environment – my father is an electromechanical engineer. And so there were lots of engineery things around me.
+ - Biofuels such as ethanol require enormous amounts of cropland and end up displacing either food crops or natural wilderness, neither of which is good.
+ - It is definitely true that the fundamental enabling technology for electric cars is lithium-ion as a cell chemistry technology. In the absence of that, I don’t think it’s possible to make an electric car that is competitive with a gasoline car.
+ - My family fears that the Russians will assassinate me.
+ - I’m glad to see that BMW is bringing an electric car to market. That’s cool.
+ - You need to be in the position where it is the cost of the fuel that actually matters and not the cost of building the rocket in the first place.
+ - If we drive down the cost of transportation in space, we can do great things.
+ - I realized that a methane-oxygen rocket engine could achieve a specific impulse greater than 380.
+ - I’m just trying to think about the future and not be sad.
+ - I started SpaceX with the expectation of failure.
+ - The fuel cell is just a fundamentally inferior way of delivering electrical energy to an electric motor than batteries.
+ - Nobody ever changed the world on 40 hours a week.
+ - Constantly seek criticism. A well thought out critique of what you’re doing is as valuable as gold.
+ - If heat death of the universe is the destination, it really is all about the journey.
+ - If something’s important enough, you should try. Even if you – the probable outcome is failure.
+ - With artificial intelligence, we are summoning the demon. In all those stories where there’s the guy with the pentagram and the holy water, it’s like, yeah, he’s sure he can control the demon. Didn’t work out.
+ - With artificial intelligence we are summoning the demon.
+ - Humans need to be a multiplanet species.
+ - People should pursue what they’re passionate about. That will make them happier than pretty much anything else.
+ - If the future does not include being out there among the stars and being a multi-planet species, I find that incredibly depressing.
+ - Patience is a virtue, and I’m learning patience. It’s a tough lesson.
+ - Self-driving cars are the natural extension of active safety and obviously something we should do.
+ - Really, the only thing that makes sense is to strive for greater collective enlightenment.
+ - I think you should always be seeking negative feedback.
+ - I do love email. Wherever possible I try to communicate asynchronously. I’m really good at email.
+ - Mars is the only place in the solar system where it’s possible for life to become multi-planetarian.
+ - Silicon Valley has some of the smartest engineers and technology business people in the world.
+ - To our knowledge, life exists on only one planet, Earth. If something bad happens, it’s gone. I think we should establish life on another planet – Mars in particular – but we ’re not making very good progress. SpaceX is intended to make that happen.
+ - Why is there no Flat Mars Society!?
+ - I think we are at the dawn of a new era in commercial space exploration.
+ - Even if there’s a zombie apocalypse, you’ll still be able to travel using the Tesla Supercharging system.
+ - For me it was never about money, but solving problems for the future of humanity.
+ - You want to do things you’re passionate about but also are useful to other people.
+ - It would take six months to get to Mars if you go there slowly, with optimal energy cost. Then it would take eighteen months for the planets to realign. Then it would take six months to get back, though I can see getting the travel time down to three months pretty quickly if America has the will.
+ - Stormy weather in Shortville ...
+ - The Tesla Semi will tug the diesel semi uphill.
+ - We have this handy fusion reactor in the sky called the sun, you don’t have to do anything, it just works. It shows up every day.
+ - As a child I would just question things...
+ - My vision is for a fully reusable rocket transport system between Earth and Mars that is able to re-fuel on Mars – this is very important – so you don’t have to carry the return fuel when you go there.
+ - The future of humanity is going to bifurcate in two directions: Either it’s going to become multiplanetary, or it’s going to remain confined to one planet and eventually there’s going to be an extinction event.
+ - In order for us to have a future that’s exciting and inspiring, it has to be one where we’re a space-bearing civilization.
+ - The extension of life beyond Earth is the most important thing we can do as a species.
+ - The overarching goal of Tesla is to help reduce carbon emissions and that means low cost and high volume. We will also serve as an example to the auto industry, proving that the technology really works and customers want to buy electric vehicles.
+ - The key test for an acronym is to ask whether it helps or hurts communication.
+ - Tesla is here to stay and keep fighting for the electric car revolution.
+ - I think it’s very unwise to be shorting Tesla. There’s a tsunami of hurt for those holding a short position. It’s going to be very unpleasant. I advise people to exit while there is still time.
+ - People often mistake technology for a static picture. It’s less like a picture and more like a movie. It’s the velocity of technology innovation that matters. It’s the acceleration.
+ - A Prius is not a true hybrid, really. The current Prius is, like, 2 percent electric. It’s a gasoline car with slightly better mileage.
+ - Obviously Tesla is about helping solve the consumption of energy in a sustainable manner, but you need the production of energy in a sustainable manner.
+ - I think it matters whether someone has a good heart.
+ - An asteroid or a supervolcano could certainly destroy us, but we also face risks the dinosaurs never saw: An engineered virus, nuclear war, inadvertent creation of a micro black hole, or some as-yet-unknown technology could spell the end of us.
+ - The thing that’s worth doing is trying to improve our understanding of the world and gain a better appreciation of the universe and not to worry too much about there being no meaning. And, you know, try and enjoy yourself. Because, actually, life’s pretty good. It really is.
+ - I would like to fly in space. Absolutely. That would be cool. I used to just do personally risky things, but now I’ve got kids and responsibilities, so I can’t be my own test pilot. That wouldn’t be a good idea. But I definitely want to fly as soon as it’s a sensible thing to do.
+ - In order to have your voice be heard in Washington, you have to make some little contribution.
+ - Silicon Valley has evolved a critical mass of engineers and venture capitalists and all the support structure – the law firms, the real estate, all that – that are all actually geared toward being accepting of startups.
+ - The problem is that at a lot of big companies, process becomes a substitute for thinking. You’re encouraged to behave like a little gear in a complex machine. Frankly, it allows you to keep people who aren’t that smart, who aren’t that creative.
+ - Trying to read our DNA is like trying to understand software code – with only 90% of the code riddled with errors. It’s very difficult in that case to understand and predict what that software code is going to do.
+ - I just want to retire before I go senile because if I don’t retire before I go senile, then I’ll do more damage than good at that point.
+ - I’d like to dial it back 5% or 10% and try to have a vacation that’s not just e-mail with a view.
+ - So, there’s quite a big keep-out zone, and when you factor the keep-out zone into account, the solar panels put on that area would typically generate more power than that nuclear power plant.
+ - We have a strict ‘no a-hole policy’ at SpaceX. And we fire people they are. I mean, we give them a little bit of warning. But if they continue to be an a-hole, then they’re fired.
+ - I feel very strongly that SpaceX would not have been able to get started, nor would we have made the progress that we have, without the help of NASA.
+ - My opinion is it’s a bridge too far to go to fully autonomous cars.
+ - It’s obviously tricky to convert cellulose to a useful biofuel. I think actually the most efficient way to use cellulose is to burn it in a co-generation power plant. That will yield the most energy and that is something you can do today.
+ - I think there are more politicians in favor of electric cars than against. There are still some that are against, and I think the reasoning for that varies depending on the person, but in some cases, they just don’t believe in climate change – they think oil will last forever.
+ - Boeing just took $20 billion and 10 years to improve the efficiency of their planes by 10 percent. That’s pretty lame. I have a design in mind for a vertical liftoff supersonic jet that would be a really big improvement.
+ - Nobody wants to buy a $60,000 electric Civic. But people will pay $90,000 for an electric sports car.
+ - Actively seek out and listen carefully to negative feedback.
+ - The path to the CEO’s office should not be through the CFO’s office, and it should not be through the marketing department. It needs to be through engineering and design.
+ - I’m increasingly inclined to think there should be some regulatory oversight, maybe at the national and international level just to make sure that we don’t do something very foolish.
+ - I’m personally a moderate and a registered independent, so I’m not strongly Democratic or strongly Republican.
+ - In the case of Apple, they did originally do production internally, but then along came unbelievably good outsourced manufacturing from companies like Foxconn. We don’t have that in the rocket business. There’s no Foxconn in the rocket business.
+ - You should be innovating so fast that you’re invalidating your prior patents.
+ - You can just reload, propel it and fly again. This is extremely important for revolutionizing access to space because as long as we continue to throw away rockets and space crafts, we will never truly have access to space.
+ - There’s nothing – I’ve bought everything I want. I don’t like yachts or anything; you know, I’m not a yacht person, and I’ve got pretty much the nicest plane I’d want to have.
+ - I’m reasonably optimistic about the future, especially the future of the United States – for the century, at least.
+ - I hate writing about personal stuff. I don’t have a Facebook page. I don’t use my Twitter account. I am familiar with both, but I don’t use them.
+ - Selling an electric sports car creates an opportunity to fundamentally change the way America drives.
+ - Some companies out there quote a start of production that is substantially in advance of when customers get their cars.
+ - People will buy the car just because it’s a great car. We want them to think it’s excellent value for money and then, oh yeah, it happens to be electric.
+ - Well, my motivation behind Tesla is really to do as much good as possible for the environment and the electric-vehicle revolution. I think there is still a lot of work to do and if we were to sell to a big company, I’m not sure it would progress at the same pace.
+ - Winning ‘Motor Trend’ Car of the year is probably the closest thing to winning the Oscar or Emmy of the car industry.
+ - What I’m trying to do is, is to make a significant difference in space flight. And help make space flight accessible to almost anyone.
+ - There are really two things that have to occur in order for a new technology to be affordable to the mass market. One is you need economies of scale. The other is you need to iterate on the design. You need to go through a few versions.
+ - It was obvious to me that we could never colonize Mars without reusability, any more than America would have been colonized if they had to burn the ships after every trip.
+ - What most people know but don’t realize they know is that the world is almost entirely solar-powered already. If the sun wasn’t there, we’d be a frozen ice ball at three degrees Kelvin, and the sun powers the entire system of precipitation. The whole ecosystem is solar-powered.
+ - Automotive franchise laws were put in place decades ago to prevent a manufacturer from unfairly opening stores in direct competition with an existing franchise dealer that had already invested time, money and effort to open and promote their business.
+ - The primary means of energy generation is going to solar. It will at least be a plurality, and probably be a slight majority in the long term.
+ - For all the supporters of Tesla over the years, and it’s been several years now and there have been some very tough times, I’d just like to say thank you very much. I deeply appreciate the support, particularly through the darkest times.
+ - Government isn’t that good at rapid advancement of technology. It tends to be better at funding basic research. To have things take off, you’ve got to have commercial companies do it.
+ - You could warm Mars up, over time, with greenhouse gases.
+ - Technology breakthrough: turns out chemtrails are actually a message from time-traveling aliens describing the secret of teleportation.
+ - I always invest my own money in the companies that I create. I don’t believe in the whole thing of just using other people’s money. I don’t think that’s right. I’m not going to ask other people to invest in something if I’m not prepared to do so myself.
+
+186 quotes
