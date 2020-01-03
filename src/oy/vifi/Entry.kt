@@ -8,17 +8,30 @@ val PEOPLE = arrayOf(
     "Albert Einstein",
     ""
 )
-
+const val OUTPUT_FOLDER = "output"
 val DOT_SPACE = Regex("([. '])")
 val QUOTE_PATTERN = Regex("<p class=\"quote-p\">.*</p>")
 val QUOTE_FIRST_PART_PATTERN = Regex("<p class=\"quote-p\">“<a class=.*\">")
 val QUOTE_SECOND_PART_PATTERN = Regex("</a>”</p>")
 
 fun main() {
-    PEOPLE.forEach { person ->
-        println("Parsing $person quotes...")
-        val quotesList = (1..10).map { parsing(getText("https://quotefancy.com/${getName(person)}-quotes/page/$it")) }.toList()
-        writeQuotes(person, quotesList.flatten())
+    createOutputFolder()
+//    readPeople()
+
+//    PEOPLE.forEach { person ->
+//        println("Parsing $person quotes...")
+//        val quotesList = (1..10).map { parsing(getText("https://quotefancy.com/${getName(person)}-quotes/page/$it")) }.toList()
+//        writeQuotes(person, quotesList.flatten())
+//    }
+}
+
+private fun createOutputFolder() {
+    val folder = File("$OUTPUT_FOLDER/")
+    println("[OUTPUT] ${folder.absolutePath}")
+    if (!folder.exists()) {
+        println("Creating $OUTPUT_FOLDER folder...")
+        folder.mkdirs()
+        println("Created")
     }
 }
 
