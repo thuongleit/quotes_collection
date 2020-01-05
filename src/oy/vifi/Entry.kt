@@ -17,28 +17,30 @@ fun main() {
     val people = readPeopleList(File("final_quotes.html"))
     writePeopleToFile(people)
 
-    people[16].let { person ->
-        //read first quote page to get number of total quotes
-        val quotePageText = getText(person.quoteUrl)
-        //val quotePageText = File("scratch.txt").readText()
-        val numberOfQuoteText = Regex("<.{1,5}>\\d+\\s+wallpapers</.+>").find(quotePageText)?.value ?: return
-        //<h2>500 wallpapers</h2>
-        val numberOfQuote = numberOfQuoteText.replace(Regex("(</?.{1,5}>|wallpapers)"), "").trim().toInt()
-        printlnAndLog("Reading ${person.name} - $numberOfQuote quotes...")
-        val firstQuotePage = readQuotes(quotePageText)
+    people
+        .filter { !it.quoteUrl.contains("deleted") }
+        .forEach { person ->
+            //read first quote page to get number of total quotes
+            val quotePageText = getText(person.quoteUrl)
+            //val quotePageText = File("scratch.txt").readText()
+            val numberOfQuoteText = Regex("<.{1,5}>\\d+\\s+wallpapers</.+>").find(quotePageText)?.value ?: return
+            //<h2>500 wallpapers</h2>
+            val numberOfQuote = numberOfQuoteText.replace(Regex("(</?.{1,5}>|wallpapers)"), "").trim().toInt()
+            printlnAndLog("Reading ${person.name} - $numberOfQuote quotes...")
+            val firstQuotePage = readQuotes(quotePageText)
 
-        val nextPageQuotes = if (numberOfQuote > MAX_QUOTE_PER_PAGE) {
-            val numberOfPage =
-                (numberOfQuote / MAX_QUOTE_PER_PAGE) + (if (numberOfQuote % MAX_QUOTE_PER_PAGE != 0) +1 else 0)
-            (2..numberOfPage).map { pageIndex ->
-                readQuotes(getText("${person.quoteUrl}/page/$pageIndex"))
-            }.toList()
-        } else {
-            emptyList<List<Quote>>()
+            val nextPageQuotes = if (numberOfQuote > MAX_QUOTE_PER_PAGE) {
+                val numberOfPage =
+                    (numberOfQuote / MAX_QUOTE_PER_PAGE) + (if (numberOfQuote % MAX_QUOTE_PER_PAGE != 0) +1 else 0)
+                (2..numberOfPage).map { pageIndex ->
+                    readQuotes(getText("${person.quoteUrl}/page/$pageIndex"))
+                }.toList()
+            } else {
+                emptyList<List<Quote>>()
+            }
+            val quoteList = firstQuotePage.toMutableList().plus(nextPageQuotes.flatten())
+            writeQuotesToFile(person, quoteList)
         }
-        val quoteList = firstQuotePage.toMutableList().plus(nextPageQuotes.flatten())
-        writeQuotesToFile(person, quoteList)
-    }
 
     printlnAndLog("DONE")
 
