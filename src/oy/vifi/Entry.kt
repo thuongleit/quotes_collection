@@ -5,43 +5,53 @@ import java.io.File
 import java.net.URL
 
 const val OUTPUT_FOLDER = "output"
+//default max quote per page from the website
 const val MAX_QUOTE_PER_PAGE = 50
+const val QUOTE_AUTHOR_PREFIX = "~~"
+
+val logs = mutableListOf<String>()
 
 fun main() {
-    println("START")
+    printlnAndLog("START")
     createOutputFolder()
     val people = readPeopleList(File("final_quotes.html"))
+    writePeopleToFile(people)
 
-    people[0].let { person ->
-        //        val quotePageText = getText(person.quoteUrl)
-        val quotePageText = File("scratch.txt").readText()
+    people[16].let { person ->
+        //read first quote page to get number of total quotes
+        val quotePageText = getText(person.quoteUrl)
+        //val quotePageText = File("scratch.txt").readText()
         val numberOfQuoteText = Regex("<.{1,5}>\\d+\\s+wallpapers</.+>").find(quotePageText)?.value ?: return
-        //<h2>7 wallpapers</h2>
-        println(numberOfQuoteText)
+        //<h2>500 wallpapers</h2>
         val numberOfQuote = numberOfQuoteText.replace(Regex("(</?.{1,5}>|wallpapers)"), "").trim().toInt()
-        println("Reading ${person.name}-${person.quoteUrl} for $numberOfQuote quotes...")
+        printlnAndLog("Reading ${person.name} - $numberOfQuote quotes...")
         val firstQuotePage = readQuotes(quotePageText)
-        println(firstQuotePage)
 
         val nextPageQuotes = if (numberOfQuote > MAX_QUOTE_PER_PAGE) {
-            val numberOfPage = (numberOfQuote / MAX_QUOTE_PER_PAGE) + (numberOfQuote % MAX_QUOTE_PER_PAGE)
+            val numberOfPage =
+                (numberOfQuote / MAX_QUOTE_PER_PAGE) + (if (numberOfQuote % MAX_QUOTE_PER_PAGE != 0) +1 else 0)
+            (2..numberOfPage).map { pageIndex ->
+                readQuotes(getText("${person.quoteUrl}/page/$pageIndex"))
+            }.toList()
         } else {
-            emptyList<Quote>()
+            emptyList<List<Quote>>()
         }
-        //val quotesList = (1..10).map { parsing(getText("https://quotefancy.com/${getName(person)}-quotes/page/$it")) }.toList()
-        //writeQuotes(person, quotesList.flatten())
+        val quoteList = firstQuotePage.toMutableList().plus(nextPageQuotes.flatten())
+        writeQuotesToFile(person, quoteList)
     }
 
-    println("DONE")
+    printlnAndLog("DONE")
+
+    File("$OUTPUT_FOLDER/logs.txt").writeText(logs.joinToString("\n"))
 }
 
 private fun readPeopleList(file: File): List<People> {
     if (!file.exists()) {
-        println("[ERROR] File ${file.absolutePath} is missing")
+        printlnAndLog("[ERROR] File ${file.absolutePath} is missing")
         return emptyList()
     }
 
-    println("Reading authors...")
+    printlnAndLog("Reading authors...")
     val textInFile = file.readText()
 
     val peoplePattern = Regex("<div class=\"gridblock-title\">.*</a></div>")
@@ -50,15 +60,15 @@ private fun readPeopleList(file: File): List<People> {
 
     //<div class="gridblock-title"><a href="https://quotefancy.com/jenny-valentine-quotes">Jenny Valentine Quotes</a></div>
     val quoteUrlPattern = Regex("href=\".*\"")
-    val peopleNamePattern = Regex("quotes\">.*</a>")
+    val peopleNamePattern = Regex("\">[^<].*</a>")
 
     return peopleList
         .map { people ->
             val quoteUrl = quoteUrlPattern.find(people)?.value?.replace(Regex("(href=|\")"), "")
             val name = peopleNamePattern.find(people)?.value?.replace(Regex("(\">|</a>|[qQ]uotes)"), "")
 
-            if (name == null || quoteUrl == null){
-                println("[WARNING] Read name=$name,url=$quoteUrl")
+            if (name == null || quoteUrl == null) {
+                printlnAndLog("[WARNING] Read name=$name,url=$quoteUrl")
                 return@map null
             }
 
@@ -67,22 +77,22 @@ private fun readPeopleList(file: File): List<People> {
         .filterNotNull()
         .toList()
         .also {
-            println("Read ${it.size} persons")
+            printlnAndLog("Read ${it.size} persons")
         }
 }
 
 private fun createOutputFolder() {
     val folder = File("$OUTPUT_FOLDER/")
-    println("[OUTPUT] ${folder.absolutePath}")
+    printlnAndLog("[OUTPUT] ${folder.absolutePath}/")
     if (!folder.exists()) {
-        println("Creating $OUTPUT_FOLDER folder...")
+        printlnAndLog("Creating $OUTPUT_FOLDER folder...")
         folder.mkdirs()
-        println("Created")
+        printlnAndLog("Created")
     }
 }
 
 private fun getText(urlStr: String): String {
-    println("[GET] $urlStr")
+    printlnAndLog("[GET] $urlStr")
     return URL(urlStr).readText()
 }
 
@@ -102,14 +112,15 @@ private fun readQuotes(text: String): List<Quote> {
         .map { it.value }
         .map { blockText ->
             val quote = quotePhrasePattern.find(blockText)?.value
-                ?.also { it.replace(Regex("(<.*\">|</a>)"), "") }
-                ?.also { it.unescapeHtml4() }
+                ?.let { it.replace(Regex("(<.*\">|</a>)"), "") }
+                ?.let { it.unescapeHtml4() }
 
             val author = authorPhrasePattern.find(blockText)?.value
-                ?.also { it.replace(Regex(""), "") }
-                ?.also { it.unescapeHtml4() }
+                ?.let { it.replace(Regex("(<.*\">—?\\s?|</p>)"), "") }
+                ?.let { it.unescapeHtml4() }
 
             if (quote == null) {
+                printlnAndLog("[WARNING] quote=$quote")
                 return@map null
             }
 
@@ -119,25 +130,30 @@ private fun readQuotes(text: String): List<Quote> {
         .toList()
 }
 
-private fun writeQuotes(person: String, quotes: List<String>) {
-    val file = "output/${getName(person)}.md"
-    println("[WRITE] to $file ${quotes.size} quotes")
-    val text = quotes.joinToString("\n", postfix = "\n\n${quotes.size} quotes", transform = { " - $it" })
-    File(file)
-        .also {
-            if (!it.exists()) {
-                it.createNewFile()
-            }
-        }
-        .writeText(text)
+private fun writeQuotesToFile(author: People, quotes: List<Quote>) {
+    val file = "output/${getName(author.name)}.md"
+    printlnAndLog("[WRITE] to $file ${quotes.size} quotes")
+    val text = quotes.map {
+        it.text + if (it.author.equals(author.name, true)) "" else " $QUOTE_AUTHOR_PREFIX${it.author}"
+    }
+    File(file).writeText(text.joinToString("\n", postfix = "\n\n${quotes.size} quotes", transform = { " - $it" }))
+}
+
+fun writePeopleToFile(people: List<People>) {
+    val file = "output/authors.md"
+    File(file).writeText(people.joinToString("\n") { "- ${it.name} - ${it.quoteUrl}" })
 }
 
 private fun getName(name: String): String {
-    val DOT_SPACE = Regex("([. '])")
-    return name.toLowerCase().replace(DOT_SPACE, "-")
+    return name.toLowerCase().replace(Regex("\\s"), "-")
 }
 
 private fun String.unescapeHtml4(): String = StringEscapeUtils.unescapeHtml4(this)
+
+private fun printlnAndLog(text: String) {
+    println(text)
+    logs.add(text)
+}
 
 data class People(val name: String, val quoteUrl: String)
 data class Quote(val text: String, val author: String?)
