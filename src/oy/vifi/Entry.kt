@@ -4,6 +4,7 @@ import org.apache.commons.lang3.StringEscapeUtils
 import java.io.File
 import java.net.URL
 
+val URL_PATTERN = Regex("^(https?|ftp|file)://[-a-zA-Z0-9+&@#/%?=~_|!:,.;]*[-a-zA-Z0-9+&@#/%=~_|]")
 const val OUTPUT_FOLDER = "output"
 //default max quote per page from the website
 const val MAX_QUOTE_PER_PAGE = 50
@@ -19,6 +20,7 @@ fun main() {
 
     people
         .filter { !it.quoteUrl.contains("deleted") }
+        .filter { it.quoteUrl.matches(URL_PATTERN) }
         .forEach { person ->
             //read first quote page to get number of total quotes
             val quotePageText = getText(person.quoteUrl)
