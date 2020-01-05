@@ -19,8 +19,25 @@ fun main() {
     writePeopleToFile(people)
 
     people
+        .also {
+            it.forEach {
+                if (it.quoteUrl.contains("deleted")) {
+                    println("Will ignore ${it.quoteUrl}")
+                }
+            }
+        }
         .filter { !it.quoteUrl.contains("deleted") }
-        .filter { it.quoteUrl.matches(URL_PATTERN) }
+        .mapNotNull {
+            if (!it.quoteUrl.matches(URL_PATTERN)) {
+                val correctUrl = URL_PATTERN.find(it.quoteUrl)?.value
+                if (correctUrl != null && it.quoteUrl.matches(URL_PATTERN)) {
+                    it.copy(quoteUrl = correctUrl)
+                }
+                null
+            } else {
+                it
+            }
+        }
         .forEach { person ->
             //read first quote page to get number of total quotes
             val quotePageText = getText(person.quoteUrl)
@@ -149,7 +166,7 @@ fun writePeopleToFile(people: List<People>) {
 }
 
 private fun getName(name: String): String {
-    return name.toLowerCase().replace(Regex("\\s"), "-")
+    return name.toLowerCase().replace(Regex("[\\s\"]"), "-")
 }
 
 private fun String.unescapeHtml4(): String = StringEscapeUtils.unescapeHtml4(this)
